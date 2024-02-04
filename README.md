@@ -6,4 +6,4 @@ Hi there, I'm Hafid! 👋
 
 My reaction to that information:
 
-![ggg](https://github.com/hafidzpro/hf/assets/43781155/885b2b1b-8f38-47aa-995a-49df0bcc8b07)
+![ggg](https://github.com/hafidzpro/hafidzpro/assets/43781155/e400b6c3-dbe6-4089-b5d5-04c592c4c22c)
