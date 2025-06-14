@@ -1,6 +1,6 @@
 
 Hi there, I'm Hafid! 👋
 
-    When my waifu love me in my dream
+    I'm currently diving into TypeScript and machine learning. 
     
 
